@@ -9,6 +9,6 @@
 
 - 👀 I have a keen interest in **coding, anything cybersecurity and blockchain**.
 
-- 📫 How to reach me **sandilep.remi@gmail.com**
+- 📫 How to reach me **sandilep.mremi@gmail.com**
 
 - ⚡ Fun fact **I enjoy reading (novels, comics etc.) and watching anime!**
